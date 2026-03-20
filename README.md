@@ -1,7 +1,7 @@
 # Privacy Policy
 
 
-**Call a Satellite Mobile App**
+**Call a Satellite- Mobile App**
 Last updated: March 20, 2026
 ---
 
